@@ -178,7 +178,7 @@ Savitribai Phule Pune University
 
 💼 **LinkedIn:** [linkedin.com/in/shekharsonawane16](https://www.linkedin.com/in/shekharsonawane16)
 
-💻 **GitHub:** [github.com/ShekharSonawane](https://github.com/ShekharSonawane)
+💻 **GitHub:** [github.com/ShekharSonawane](https://github.com/shekharsonawane16)
 
 ---
 
